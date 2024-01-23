@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...🤭
 - 📫 How to reach me: lovethelifeyoulive0930@gmail.com/ LinkedIn: Marilyn Tucker
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: Born in Thailand, and raised in Japan. My family in the states. I speak Japanese and English. (A little bit Korean and Chinese too!)
+- ⚡ Fun fact: Born in Thailand, and raised in Japan. My family is in the states. I speak Japanese and English. (A little bit Korean and Chinese too!)
 
 <!---
 marilyn0930xoxo/marilyn0930xoxo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
