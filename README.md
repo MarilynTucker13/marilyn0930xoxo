@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Marilyn Tucker
 - 👀 I’m interested in technology, coding, and Taylor Swift.
-- 🌱 I’m currently learning Java, HTML, CSS, JavaScript, and Swift. (I'm a newbee!)
+- 🌱 I’m currently learning Java, HTML, CSS, JavaScript, and Swift. (I'm a newbie!)
 - 💞️ I’m looking to collaborate on ...🤭
 - 📫 How to reach me: lovethelifeyoulive0930@gmail.com/ LinkedIn: Marilyn Tucker
 - 😄 Pronouns: she/her/hers
