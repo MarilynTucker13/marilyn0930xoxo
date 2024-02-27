@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Marilyn Tucker
 - 👀 I’m interested in technology, coding, and Taylor Swift.
 - 🌱 I’m currently learning Java, HTML, CSS, JavaScript, and Swift. (I'm a newbie!)
-- 💞️ I’m looking to collaborate on ...🤭
 - 📫 How to reach me: lovethelifeyoulive0930@gmail.com/ LinkedIn: Marilyn Tucker
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: Born in Thailand, and raised in Japan. My family is in the states. I speak Japanese and English. (A little bit Korean and Chinese too!)
